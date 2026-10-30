@@ -14,3 +14,6 @@
 -Tener estabilidad laboral
 -Montar una empresa de Software
 -Mejorar mis habilidad 
+
+## Consejo final
+Debes ser fuerte, tener disciplina, visión y ambición. 
