@@ -9,3 +9,8 @@
 
 ## Metas académicas
 -Graduarme y ser ingeniera de sistemas 
+
+## Metas laborales
+-Tener estabilidad laboral
+-Montar una empresa de Software
+-Mejorar mis habilidad 
